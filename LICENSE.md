@@ -1,4 +1,4 @@
-
+Enhance your PureVPN experience with instant PureVPN Connector | multi-protocol-support + IP-masking, the #1 connector. Includes multi-protocol-support and IP-masking for a safer
 
 
 
